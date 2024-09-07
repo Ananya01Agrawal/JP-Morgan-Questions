@@ -15,13 +15,13 @@ And you have to speak 2mins for each question
 
 3. Tell me about a time when you had to explain something you knew well to someone who had difficulty understanding the subject.Describe the situation, the steps you took, and the outcome.
 
-4. .Describe a situation where you felt you had not communicated well and had to correct the situation.
+4. Describe a situation where you felt you had not communicated well and had to correct the situation.
 
 5. Tell me about a time when you had to explain something you knew well to someone who had difficulty understanding the subject. Describe the situation, the steps you took, and the outcome
 
 6. You understand the project work and your co worker cant how will u help them?
 
-7. 
+
 
 
 
